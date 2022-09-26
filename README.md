@@ -1,0 +1,3 @@
+## leaStudios Full Site Editing WordPress Theme
+
+More to come later...
